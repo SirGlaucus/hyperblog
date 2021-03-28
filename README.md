@@ -11,6 +11,9 @@ En este curso vemos de todo:
 - 4 lenguages al mismo tiempo
 - Luego solo uno
 - Creador por el gran e increible Joseph
+- Incluye ejemplos es distintos entornos
+- Disponible para todas las edades
+
 
 Que lo chupe el que lo lea. **Por razpones legales this is a joke, en realidad todo el texto es un chiste, sorrymasen.**
 
